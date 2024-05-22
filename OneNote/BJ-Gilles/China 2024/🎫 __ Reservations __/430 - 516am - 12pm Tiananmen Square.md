@@ -1,0 +1,3 @@
+|   |   |
+|---|---|
+|![Of Appointment Booking No.: 20240422231654121733361 Appointrnent Success Appointment: 30 April 2024 AM Number of visitors: 2 (2 adults + O children) Master Appointee * Name: Lin Bingjun * Certificate Type: Chinese Identity Card (require ](Exported%20image%2020240521171751-0.png)|![8 ： 17 100 预 约 记 录 详 情 预 约 编 号 ： 20240422231654121733361 预 约 成 功 预 约 参 观 时 间 ： 2024 年 04 月 30 日 上 午 05 ： 16 一 12 ： 00 预 约 参 观 人 数 ： 2 人 （ 2 成 人 + 0 丿 L 童 ） 主 预 约 人 * 姓 名 ： 林 炳 君 * 证 件 类 型 ： 中 国 居 民 身 份 证 （ 必 带 ） * 证 件 号 码 ： 450722 * * * * * * * * * 010 * 手 机 号 码 ： 176 * * * * 8520 同 行 人 1 * 姓 名 ： Peron Gilles Louis * 证 件 类 型 ： 护 照 * 证 件 号 码 ： 手 机 号 码 ： ](Exported%20image%2020240521171751-1.jpeg)|

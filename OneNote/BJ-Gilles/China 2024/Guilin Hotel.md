@@ -1,0 +1,6 @@
+|   |   |
+|---|---|
+|BOYARD HOTEL|[https://us.trip.com/hotels/w/detail/?cityid=33&hotelid=78182114&checkin=2024-04-28&checkout=2024-05-01&curr=USD&locale=en-US](https://us.trip.com/hotels/w/detail/?cityid=33&hotelid=78182114&checkin=2024-04-28&checkout=2024-05-01&curr=USD&locale=en-US)|
+|CIAO Hotel (My personal favor)|[https://us.trip.com/hotels/w/detail/?cityid=33&hotelid=70477064&checkin=2024-05-12&checkout=2024-05-15&curr=USD&locale=en-US](https://us.trip.com/hotels/w/detail/?cityid=33&hotelid=70477064&checkin=2024-05-12&checkout=2024-05-15&curr=USD&locale=en-US)|
+|Sheraton Guilin Hotel  <br>Check out Sheraton Guilin Hotel|￼[https://us.trip.com/hotels/w/detail/?cityid=33&hotelid=404795&checkin=2024-05-12&checkout=2024-05-15&curr=USD&locale=en-US](https://us.trip.com/hotels/w/detail/?cityid=33&hotelid=404795&checkin=2024-05-12&checkout=2024-05-15&curr=USD&locale=en-US)|
+|Guilin Central Palace Hotel|[https://us.trip.com/hotels/w/detail/?cityid=33&hotelid=62540761&checkin=2024-05-12&checkout=2024-05-15&curr=USD&locale=en-US](https://us.trip.com/hotels/w/detail/?cityid=33&hotelid=62540761&checkin=2024-05-12&checkout=2024-05-15&curr=USD&locale=en-US)|

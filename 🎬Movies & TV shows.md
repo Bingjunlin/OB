@@ -1,0 +1,2 @@
+== Added by TickTickSync -- 1.0.30 == 
+- [ ] 🎥 Movie tickets  [link](https://ticktick.com/webapp/#p/648e6fd597fdd14c98ffd9fb/tasks/654aa2e7fb96d1030c2defdd) #ticktick  %%[ticktick_id:: 654aa2e7fb96d1030c2defdd]%% ⏫
